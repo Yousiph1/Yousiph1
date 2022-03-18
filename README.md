@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Yussif Mohammed
-- 📫 Reach me; yousiph77@gmail.com
+- 👋 Hi, I’m Yussif
+- 📫 Reach me at yousiph77@gmail.com
 
